@@ -9,4 +9,5 @@ Estou desenvolvendo estudos de tecnologia
 ### Você pode entrar em contato comigo 📪
 00001108150354sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/crane-crane-kick-ufc-mma-ko-gif-11749150)
+![](https://media.tenor.com/XuEsUKOUd70AAAAi/street-fighter.gif)
+
